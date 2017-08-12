@@ -1,1 +1,0 @@
-# GECT-students-portal
